@@ -2,5 +2,5 @@
 ## dziś forki
 
  
-##  n___n
-#>(o v o)<
+  n___n
+>(o v o)<
